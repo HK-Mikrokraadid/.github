@@ -1,0 +1,1 @@
+# Tallinna Ülikooli Haapsalu kolledži poolt pakutavad mikrokraadid
